@@ -6,7 +6,7 @@ darshana
 kaustubh tulaskar
 LUCIFER0x7, We all are awesome developer's 
 aarya
-ankit 
+ANKIT AURANGABAD - 19.8510312,75.2612531
 Shaunak Bhagurkar
 Shaunak Bhaiyya
 Abhishek narkhede
